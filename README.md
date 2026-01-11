@@ -1,2 +1,2 @@
-## Easy Web App Tutorial Repo 🎉✨
+## Ecxellency Academy
 
